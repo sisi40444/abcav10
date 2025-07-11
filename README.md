@@ -20,4 +20,4 @@
 结语  
 优质日本AV平台不仅内容丰富，更注重细节体验。高画质、快更新、强安全，选择一个合适的平台，让你的观影时光变得更轻松愉悦。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav10 )</span>
